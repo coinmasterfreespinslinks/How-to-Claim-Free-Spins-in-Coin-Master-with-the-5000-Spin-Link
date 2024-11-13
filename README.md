@@ -2,6 +2,8 @@
 
 Are you an avid *Coin Master* player looking to level up your game without spending a fortune? If so, you're in the right place! In this article, we’ll explain how to claim **free spins** using the **5000 Spin Link** in *Coin Master* and how it can accelerate your progress in the game.
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 **Before we dive in, here's the good news:**
 
 You can claim **5000 free spins** through a special link—completely free! Yes, you heard that right. The 5000 Spin Link is a golden opportunity to get ahead in *Coin Master* without spending real money. But, as with most great offers, time is of the essence, so make sure to grab your free spins as soon as possible.
